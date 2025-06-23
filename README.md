@@ -10,4 +10,6 @@ Ejercicios de clase de Excel con Afra de una cafeteria
    - Etc.
 
    <ins>**Gracias a este curso, he aprendido nuevas funciones que no habia mirado**</ins>
+
+   <ins>**_GRACIAS SRTA. AFRA_**</ins>
       
